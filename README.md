@@ -3,8 +3,7 @@ SSTT
 
 
 
-
-dajfodsjfoiajiofjaiodfa_______________BBBBBBBBBBBBBBBBBBBB
+_______________BBBBBBBBBBBBBBBBBBBB
 
 
 
