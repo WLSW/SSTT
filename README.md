@@ -1,11 +1,6 @@
 SSTT
 ====
-
-
-
-_______________BBBBBBBBBBBBBBBBBBBB
-
-
+OOOOOOOOOOOOO0000000000
 
 fjdoijfaiojdfoiajiodfjaiodjfaoidjfioajodifjaiodf
 
